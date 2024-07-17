@@ -19,4 +19,4 @@ Feel free to explore the repository, provide feedback, or connect with me for fu
 For any inquiries or collaborations, feel free to reach out:
 
 - Email: [prashantt.sood@gmail.com](mailto:prashantt.sood@gmail.com)
-- LinkedIn: [Daksh Tyagi](https://www.linkedin.com/in/prashant-842790301)
+- LinkedIn: [Prashant](https://www.linkedin.com/in/prashant-842790301)
